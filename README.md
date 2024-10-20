@@ -34,6 +34,7 @@
 
 
 ### Video Record of DailyFinance Automation
-### 
+### https://drive.google.com/file/d/1K0SMVu61MHKGDOgZLB_i67ntFz9qFS91/view?usp=drive_link
+
 
 
